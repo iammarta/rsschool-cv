@@ -7,9 +7,9 @@ Personal information:
 
 **Address:** Okolychna str.16/13, Lviv, Ukraine
 
-**Phone number:**[+38(095)1832438](tel:380951832438)
+**Phone number:** [+38(095)1832438](tel:380951832438)
 
-**E-mail:**[martakozak94666@gmail.com](mailto:martakozak94666@gmail.com)
+**E-mail:** [martakozak94666@gmail.com](mailto:martakozak94666@gmail.com)
 
 **Facebook:** [https://www.facebook.com/marta.kozak3](https://www.facebook.com/marta.kozak3)
 
